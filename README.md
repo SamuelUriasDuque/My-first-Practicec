@@ -1,2 +1,2 @@
 # My-first-Practicec
-Team: Victor abrego de la rosas and Urias Duque Samuel
+Team: Victor Gabriel Abrego de la rosas and Urias Duque Samuel
